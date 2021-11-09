@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @micaelsb
+- 👀 I’m interested in learning alot of stuff related to coding and how it may be applied to law.
